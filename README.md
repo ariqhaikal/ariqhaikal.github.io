@@ -1,1 +1,1 @@
-"# ariqhaikal.github.io" 
+"RJ JANCOK" 
